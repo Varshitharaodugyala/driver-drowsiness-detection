@@ -91,7 +91,7 @@ Thank you for using this tool. Feel free to reach out if you have any questions 
 
 **Contact Information:**
 
-- **Phone**: 9025421765
-- **Email**: k.gokulappaduraikjgv@gmail.com
+- **Phone**: 9100541725
+- **Email**: varshitharaodugyala@gmail.com
 
-*Developed by K. Gokulappadurai, B.E (CSE) in progress...*
+
